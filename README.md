@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SleeplessWanderer or Ghostrial "Ghost" also known as Wolfy or Nanami in roblox.
 -  Pronouns: she/her
 -  ️‍🌈 AroAce 
-- I am 18 years old, graduated highschool, still looking for a job...
+- I am 19 years old, graduated highschool, still looking for a job...
 - If you'd like to talk with me more, my discord user is victorianvoyager or if you want to play roblox with me: nxainsanewolfy
 - You're most likely to find me under the MLP, spawn, GF [Gravity falls] area in the 18+ Server or safe server
 -  If you try talking to me on Ponytown and I don't respond, I'm either Off tab, Afk, or I have you hidden. [I usually won't be the one interacting first, whisper me if I don't respond.]
