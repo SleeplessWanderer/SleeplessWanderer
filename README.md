@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SleeplessWanderer or Ghostrial "Ghost" also known as Wolfy, Nanami or Coralyn in roblox.
 -  Pronouns: she/her
 -  ️‍🌈 AroAce 
-- I am almost 19 years old, graduated highschooler.
+- 19 years old
 - Jan 9th birthday!
 - Capricorn
 - If you'd like to talk with me more, my discord user is victorianvoyager or if you want to play roblox with me: nxainsanewolfy
