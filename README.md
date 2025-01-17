@@ -10,7 +10,7 @@
 -  I'm an Introvert, So I tend to get tired when interacting with people or lost motivation easily.
 -  I also have ADD [Attention deficit disorder, ADHD basically just without hyperactivity.]
 -  Music artists: Lindsey Stirling, Annapantsu, Mitski, Fish in a Birdcage, Poor Man's Poison, Sail North, Yaelokre, etc.
--  My Likes and interests. INT, I'd love to talk about these!: Coraline (comfort movie), Beetlejuice, Heathers, Ride the cyclone, Gravity Falls, Epic the Musical, Starkid musicals, DnD, DHMIS, Alice in wonderland, Girl from nowhere, PJO, etc...
+-  My Likes and interests. INT, I'd love to talk about these!: Coraline (comfort movie), Beetlejuice, Heathers, Ride the cyclone, Gravity Falls, Epic the Musical, NPMD musical/starkid, Arcane, DnD, DHMIS, Alice in wonderland, Girl from nowhere, PJO.
 ✗: Homophobic. If you are Homophobic, I don't want you near me. 
 ✗:  Racist. if you are racist, I don't want you near me.
 ✗: Assume things that might not be true. You don't even know me so please, just don't.
