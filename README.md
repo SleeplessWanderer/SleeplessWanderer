@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @SleeplessWanderer or Ghostrial "Ghost" also known as Wolfy, Nanami or Coralyn in roblox.
+- 👋 Hi, I’m @SleeplessWanderer or Konii
 -  Pronouns: she/her
 -  ️‍🌈 AroAce 
-- 19 years old
+- 19 years old 
 - Jan 9th birthday!
 - Capricorn
 - If you'd like to talk with me more, my discord user is victorianvoyager or if you want to play roblox with me: nxainsanewolfy
@@ -11,7 +11,7 @@
 -  I also have ADD [Attention deficit disorder, ADHD basically just without hyperactivity.]
 -  Music artists: Lindsey Stirling, Annapantsu, Mitski, Fish in a Birdcage, Poor Man's Poison, Sail North, Yaelokre, etc.
 -  New fav artist: Lyn Lapid
--  My Likes and interests. INT, I'd love to talk about these!: Coraline (comfort movie), Beetlejuice, Heathers, Ride the cyclone, Gravity Falls, Epic the Musical, NPMD musical/starkid, Arcane, DnD, DHMIS, Alice in wonderland, Girl from nowhere, PJO, Class of 09.
+-  My Likes and interests. INT, I'd love to talk about these!: Coraline (comfort movie), Beetlejuice, Heathers, Ride the cyclone, Gravity Falls, Epic the Musical, NPMD musical/starkid, Arcane, DnD (I need to start playing), DHMIS, Alice in wonderland, Girl from nowhere, PJO, Class of 09.
 ✗: Homophobic. If you are Homophobic, I don't want you near me. 
 ✗:  Racist. if you are racist, I don't want you near me.
 ✗: Assume things that might not be true. You don't even know me so please, just don't.
