@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SleeplessWanderer or also known as Konii
 -  Pronouns: she/her
 -  ️‍🌈 AroAce
-- 19 years old 
+- 20 years old 
 - Jan 9th birthday!
 - Capricorn
 - If you'd like to talk with me more, my discord user is victorianvoyager or if you want to play roblox with me: nxainsanewolfy
